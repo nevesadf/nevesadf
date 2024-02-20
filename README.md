@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Andreia Ferreira
 - 👩‍💼 My background is in Management
-- 👀 I’m interested in Digital Marketing
+- 👀 I’m interested in Digital Marketing & Web Development
 - 🧗‍♀️ Big fan of outdoor activities
 - 💞️ I’m looking to collaborate on E-commerce Managament
 - 📫 You can reach me by email
